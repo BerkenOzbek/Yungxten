@@ -1,0 +1,2 @@
+# Yungxten
+My name is Berken. I am in student at İnformation System Engineering. I am a full-time developer with 2 years of experience. The programming languages in which I am an expert are Python, and C/C++. İn the same time, I am expert about create 10000+ NFT with coding. I will try my best to understand the client's requirements and give him/her my best responsive. I ensure quality and time delivery.
